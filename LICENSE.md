@@ -1,4 +1,4 @@
-#  
+#  Experience blue lock rivals like never before with secret Scripts for blue lock rivals, the #1 Script. Includes unlimited stamina and auto-farm for
 
 
 
